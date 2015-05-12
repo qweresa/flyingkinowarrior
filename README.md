@@ -1,2 +1,0 @@
-# flyingkinowarrior
-wazzzzzzzzuppp
